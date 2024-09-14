@@ -16,8 +16,8 @@ Outside of work, I love reading, cooking, exploring new places, and
 trying out different cuisines.
 
 Feel free to explore reach out via
-[LinkedIn](https://www.linkedin.com/in/yifei-sun-0b8b4b1b8/) or [email
-me](mailto:yifeisun@udel.edu).
+[LinkedIn](https://www.linkedin.com/in/yifei-sun-a0ab1b326/){target="_blank"}
+or [email me](mailto:yifeisun@udel.edu).
 
 
 ## Education
