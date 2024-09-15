@@ -15,9 +15,12 @@ analysis, and auditing. I enjoy multitasking and collaboration.
 Outside of work, I love reading, cooking, exploring new places, and
 trying out different cuisines.
 
-Feel free to explore reach out via 
-<a href="https://www.linkedin.com/in/yifei-sun-a0ab1b326/"
-target="_blank">LinkedIn</a> or [email me](mailto:yifeisun@udel.edu).
+
+Feel free to get in touch with me via
+[email](mailto:yifeisun@udel.edu) or connect on <a
+href="https://www.linkedin.com/in/yifei-sun-a0ab1b326/"
+target="_blank">LinkedIn</a> for any inquiries or collaboration
+opportunities.
 
 
 ## Education
